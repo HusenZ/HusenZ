@@ -13,7 +13,7 @@ Copy
 
 ### 🔗 Connect with me:
 
-[![Email](https://img.shields.io/badge/Email-mohammadhusenzhare%40gmail.com-red?style=flat&logo=gmail)](mailto:mohammadhusenz789@gmail.com)
+[![Email](https://img.shields.io/badge/Email-mohammadhusenz789%40gmail.com-red?style=flat&logo=gmail)](mailto:mohammadhusenz789@gmail.com)
 
 ---
 
